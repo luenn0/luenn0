@@ -21,7 +21,7 @@
 
 ## Contact
 
-* #### <img src="https://discord.com/assets/847541504914fd33810e70a0ea73177e.ico" width="18px" height="18px"/>  [Discord](https://discord.com/users/772265353975300106)
+* #### <img src="https://discord.com/assets/847541504914fd33810e70a0ea73177e.ico" width="18px" height="18px"/>  [Discord](https://discord.com/users/1158046534714277918)
 
 * #### E-MAIL : hello@luenn.xyz
 * ##### I prefer to contacted via discord!
